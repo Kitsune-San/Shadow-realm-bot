@@ -1,0 +1,2 @@
+# Shadow realm bot
+ INTO THE FUCKING SHADOW REALM U GO
